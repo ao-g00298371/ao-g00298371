@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Alex 👋
 
 
 - 🔭 I’m currently working on completing the Interface Design and Web Development at RVCC.
