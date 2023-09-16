@@ -9,4 +9,3 @@
 - ✨ Pronouns: he/him
 - 🧠 Fun fact #1: A single gram of uranium has 20 billion calories.
 - 🧠 Fun fact #2: Roughly 10% of all human beings ever born are alive at this very moment.
-[penguin](https://file%252B.vscode-resource.vscode-cdn.net/Users/alexanderoneill/Desktop/1000_F_48718942_UaMATpmnTxMRuTskOhBslpQ6pLIDpvrA.jpg?version%253D1694839092194)
